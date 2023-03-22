@@ -1,2 +1,2 @@
-# Laurin226.github.io
-<strong><a href="https://laurin226.github.io">My website</a></strong>
+# Applera1n.github.io
+<strong><a href="https://applera1n.github.io">My website</a></strong>
